@@ -5,3 +5,5 @@
 - 😄 Pronouns: she/her
 - 📫 How to reach me: 
 - ⚡ Fun fact: Tarot cards user :spades:
+
+<https://www.instagram.com/emiraamami/>
